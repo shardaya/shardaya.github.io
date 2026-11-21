@@ -16,6 +16,12 @@ Education
 
 Work experience
 ======
+* 2024 - now: Adviser
+  * Prospera (Australia-Indonesia Partnership for Economic Development)
+  * Duties included:
+    * Providing technical and analytical advice to support the Government of Indonesia strengthen its domestic fiscal capacity through revenue administration reforms. 
+  * Supervisor: Rubino Sugana
+    
 * 2021 - 2022: Consultant
   * Deloitte Consulting
   * Duties included:
